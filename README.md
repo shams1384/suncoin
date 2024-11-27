@@ -1,0 +1,2 @@
+# suncoin
+Su
